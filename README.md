@@ -1,0 +1,1 @@
+# Asimple-magazine-website
